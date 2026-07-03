@@ -1,4 +1,4 @@
-# 
+# Ultime OpenClaw préréglages. Avec indexation des données et modèles hybrides d'IA — optimisé pour des performances et une efficacité maximales.
 
 
 
